@@ -9,7 +9,7 @@
 
 ## 🔹 Resume
 
-📄 [Click here to view]()
+📄 [Click here to view](https://shubbham-kumarr.github.io/Resume/)
 
 ---
 
